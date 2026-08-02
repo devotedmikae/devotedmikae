@@ -1,1 +1,1 @@
-<p><img src="https://f2.toyhou.se/file/f2-toyhou-se/thumbnails/121281917_lmz.png" style="position: fixed; bottom: 10px; right: 10px; z-index: 99999;" class="hidden-xs-down fa fa-bounce fr-fic fr-dii" width="18" height="20"></p>
+<p><img src="https://i.pinimg.com/originals/bf/7a/6b/bf7a6bd4a1f8755f40e2d16472280381.gif" class="fr-fic fr-dib" width="500" height="280"></p>
