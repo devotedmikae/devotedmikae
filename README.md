@@ -1,1 +1,28 @@
-<p><img src="https://i.pinimg.com/originals/bf/7a/6b/bf7a6bd4a1f8755f40e2d16472280381.gif" class="fr-fic fr-dib" width="500" height="280"></p>
+export default {
+  async fetch(request, env) {
+    let count = await env.COUNTER.get("views");
+
+    if (!count) {
+      count = 690;
+    } else {
+      count = Number(count) + 1;
+    }
+
+    await env.COUNTER.put("views", String(count));
+
+    const svg = `
+<svg xmlns="http://www.w3.org/2000/svg" width="145" height="20">
+  <rect rx="10" width="145" height="20" fill="#246E78"/>
+  <text x="10" y="14" fill="#ffffff" font-family="Verdana" font-size="11">
+    Profile Views ${count}
+  </text>
+</svg>`;
+
+    return new Response(svg, {
+      headers: {
+        "Content-Type": "image/svg+xml",
+        "Cache-Control": "no-store"
+      }
+    });
+  }
+}
