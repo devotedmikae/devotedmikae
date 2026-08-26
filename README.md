@@ -20,5 +20,5 @@ Feel free to cuddle + hug / hide BEHIND me (c+h), boop, kiss and sit NEXT to me 
   <summary> ✦ DNIs </summary>
 
 Basic dni criterias.. If you are problematic, bigoted, rude or have a bad reputation, do not approach me.
-I also do not forgive! Once trust is broken, you're out. If you have done something bad, then you have to assume the consequences of your acts.
+I also do not forgive once trust is broken as people never truly change and bad behaviors may repeat. If you have done something bad, then you have to assume the consequences of your acts.
 </details>
