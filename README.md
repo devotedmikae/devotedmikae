@@ -13,7 +13,7 @@
 <details>
   <summary> ✦ Abσυƚ Pσnყƚσɯn </summary>
 
-Feel free to cuddle + hug/hide behind us (c+h), boop, kiss and sit next to me even if I am with a friend or away from keyboard (afk)! Though please do not cover me up, I don’t like it. If I am unresponsive, then I am probably offtab! In that case, you can whisper to interact (w2i) and we usually answer very fast unless our pony’s name says “sleeping / asleep”. If you have a Bendy pony (preferably BATIM) or Cuphead pony, PLEASEEEEEEEE interact with me.
+Feel free to cuddle + hug/hide behind me (c+h), boop, kiss and sit next to me even if I am with a friend or away from keyboard (afk)! Though please do not cover me up, I don’t like it. If I am unresponsive, then I am probably offtab! In that case, you can whisper to interact (w2i) and we usually answer very fast unless our pony’s name says “sleeping / asleep”. If you have a Bendy pony (preferably BATIM) or Cuphead pony, PLEASEEEEEEEE interact with me.
 </details>
 
 <details>
