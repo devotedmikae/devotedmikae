@@ -9,3 +9,12 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/d287e0a767f6b874b94f79e6470f514d/27ff882cc7c5490b-c4/s540x810/9c623e7227bcdd113b26335922032c05f347bfcd.pnj" width="300" alt="Sƚαlƙeɾs ✦">
 </p>
+
+<details>
+  <summary> Abσυƚ Pσnყƚσɯn </summary>
+
+Feel free to:
+✦ cuddle + hug/hide behind us (c+h), boop, kiss and sit next to me even if I am with a friend or away from keyboard (afk)! Though please do not cover me up, I don’t like it.
+✦ If I am unresponsive, then I am probably offtab! In that case, you can whisper to interact (w2i) and we usually answer very fast unless our pony’s name says “sleeping / asleep”.
+✦ If you have a Bendy pony (preferably BATIM) or Cuphead pony, PLEASEEEEEEEE interact with me.
+</details>
