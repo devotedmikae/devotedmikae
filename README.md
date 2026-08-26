@@ -20,4 +20,5 @@ Feel free to cuddle + hug / hide BEHIND me (c+h), boop, kiss and sit NEXT to me 
   <summary> ✦ DNIs </summary>
 
 Basic dni criterias.. If you are problematic, bigoted, rude or have a bad reputation, do not approach me.
+I also do not forgive: once trust is broken, you're out.
 </details>
