@@ -14,8 +14,8 @@ Feel free to cuddle, hug, hide **BEHIND** us, boop, kiss and sit **NEXT** to us 
 <details>
 <summary>✦ Bσυnԃαɾiҽs</summary>
 
-1. DO NOT COVER US UP, we don’t like it. Yes this includes friends or moots by the way. Unless WE hide behind you on our own initiative, please avoid doing so.
-2. We do not do ships or roleplays! We are not judgemental of your preferences, you can ship anything as long as it is not problematic or hurtful.
+1. Do not cover us up, we don’t like it. This includes friends and moots by the way. Unless WE hide behind you on our own initiative, please avoid doing so.
+2. We do not do ships or roleplays! We are not judgemental of your preferences and you can ship anything as long as it is not problematic or hurtful. Just don't assume that we ship the same characters as you just because we have a pony of the characters you pair.
 
 </details>
 
