@@ -1,9 +1,4 @@
-<style>
-  details {
-    display: inline-block;
-    vertical-align: top;
-    margin: 5px;
-  }
+
 
   details[open] {
     display: inline-block;
