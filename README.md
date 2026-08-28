@@ -1,14 +1,4 @@
 
-
-  details[open] {
-    display: inline-block;
-  }
-
-  summary {
-    cursor: pointer;
-  }
-</style>
-
 <p align="center">
 
 <details>
