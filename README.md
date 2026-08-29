@@ -91,7 +91,7 @@ Aesthetics of old-fashion, luxury, Baroque and very futuristic technology.
 
 Topics about angels, demons, mythical creatures and robots.
 
-Things that have chromatic, holographic, iridescent and raindbow in effects.
+Things that have chromatic, holographic, iridescent and rainbow effects.
 
 </details>
 
