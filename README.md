@@ -27,7 +27,7 @@ Do not copy or take inspiration from any of our cosplays, especially not our OCs
 
 1 ✦ Don’t cover us up. This includes friends and moots.
 
-2 ✦ We do not participate in ships or roleplays!
+2 ✦ We do not participate in roleplays!
 
 3 ✦ Please... Do not vent to us.
 
