@@ -7,7 +7,7 @@
 <details>
 <summary>✦ Bҽfσɾҽ ყσυ inƚҽɾαcƚ</summary>
 
-1 ✦ We are EXTREMELY cynical and if you break our trust ONCE, you're out. Sadly we believe that people never change. We have tried in the past to give second chances to people and it always ended badly. Therefore if you hurt us once, it proves that you are capable of doing so again.
+1 ✦ We are EXTREMELY cynical and if you break our trust ONCE, you're out. Sadly we believe that people never change. We have tried in the past to give second chances to people and it always ended badly. Therefore if you hurt us once, it proves that you are capable of doing so... Again.
 
 2 ✦ We have diagnosed alexithymia! We can't understand our own feelings and we can't interpret people's feelings either. We have learned to analyze emotions through emojis and pictures, but if it's used sarcastically or has a joke behind it that we don't get, we might accidentally answer something that's out of the blue! It can also be why sometimes when everyone is sad around that we might be neutral. We don't get what's happening or why that is negative. If you think that we have misinterpreted something you said, please just explain it to us instead of making us guess. It will just put distance between us and eventually make us cut you off.
 
