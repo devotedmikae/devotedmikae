@@ -79,3 +79,21 @@ We are not severe with our DNIs, so please respect the very few ones we enforce,
 </details>
 
 </div>
+
+<div align="center">
+
+<details>
+<summary>✦ Inƚҽɾҽsƚs</summary>
+
+We love:
+
+Aesthetics of old-fashion, luxury, Baroque and very futuristic technology.
+
+Topics about angels, demons, mythical creatures and robots.
+
+Things that have chromatic, holographic, iridescent and raindbow in effects.
+
+</details>
+
+</div>
+
