@@ -7,8 +7,7 @@
 <details>
 <summary>✦ Abσυƚ υs</summary>
 
-Turning 21 this 9 sept | aroace (androsexual?) | fr + eng
-We are a digital artist, character designer and writer. Our art trades are always open and if you want to commission us, you can do so on our Ko-Fi page.
+Turning 21 this 9 sept . . . aroace (androsexual?) . . . fr + eng . . . We are a digital artist, character designer and writer. Our art trades are always open and if you want to commission us, you can do so on our [Ko-Fi page.](https://ko-fi.com/devotedmikae)
 </details>
 
 <div align="center">
