@@ -12,6 +12,17 @@ Feel free to cuddle, hug, boop, kiss and sit next / behind us even if we are wit
 <div align="center">
 
 <details>
+<summary>✦ Abσυƚ ρσniҽs</summary>
+
+Do not copy or take inspiration of our cosplays, especially not our OCs. It'll be considered as stealing. If you struggle to make a pony and that we have the so-called "missing piece" on our ponies, just ask us to help you instead of recreating what you see on us. And we are not stupid: we know that if we make the same character as you there WILL be similarities, but you know what we mean.
+
+</details>
+
+</div>
+
+<div align="center">
+
+<details>
 <summary>✦ Bσυnԃαɾiҽs</summary>
 
 1 ✦ Don’t cover us up. This includes friends and moots.
