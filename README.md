@@ -5,6 +5,14 @@
 <div align="center">
 
 <details>
+<summary>✦ Abσυƚ υs</summary>
+
+20y, will turn 21 this 9sept | aroace but kind of androsexual? (still questioning) | fr + eng
+</details>
+
+<div align="center">
+
+<details>
 <summary>✦ Bҽfσɾҽ ყσυ inƚҽɾαcƚ</summary>
 
 1 ✦ We are EXTREMELY cynical and if you break our trust ONCE, you're out. Sadly we believe that people never change. We have tried in the past to give second chances to people and it always ended badly. Therefore if you hurt us once, it proves that you are capable of doing so... Again.
