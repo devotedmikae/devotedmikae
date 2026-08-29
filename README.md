@@ -12,13 +12,9 @@ Feel free to cuddle, hug, boop, kiss and sit next / behind us even if we are wit
 <div align="center">
 
 <details>
-<summary>✦ Bσυnԃαɾiҽs</summary>
+<summary>✦ Abσυƚ ƚhҽ ρσniҽs</summary>
 
-1 ✦ Don’t cover us up. This includes friends and moots.
-
-2 ✦ We do not participate in ships or roleplays!
-
-3 ✦ Please... Do not vent to us.
+Do not copy or take inspiration from any of our cosplays, especially not our OCs. It'll just be considered as stealing if you don't even ask us for our consent. If you struggle with a part of your pony and that you find the so called "missing piece" on one of our ponies, please just ask us to help you instead of recreating what you see. Of course, we are not dumb: we know that if we cosplay the same character there will be similarities. But you get what we mean.
 
 </details>
 
@@ -27,9 +23,13 @@ Feel free to cuddle, hug, boop, kiss and sit next / behind us even if we are wit
 <div align="center">
 
 <details>
-<summary>✦ Abσυƚ ƚhҽ ρσniҽs</summary>
+<summary>✦ Bσυnԃαɾiҽs</summary>
 
-Do not copy or take inspiration from any of our cosplays, especially not our OCs. It'll just be considered as stealing if you don't even ask us for our consent. If you struggle with a part of your pony and that you find the so called "missing piece" on one of our ponies, please just ask us to help you instead of recreating what you see. Of course, we are not dumb: we know that if we cosplay the same character there will be similarities. But you get what we mean.
+1 ✦ Don’t cover us up. This includes friends and moots.
+
+2 ✦ We do not participate in ships or roleplays!
+
+3 ✦ Please... Do not vent to us.
 
 </details>
 
