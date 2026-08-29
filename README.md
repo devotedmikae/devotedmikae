@@ -7,7 +7,8 @@
 <details>
 <summary>✦ Abσυƚ υs</summary>
 
-20y, will turn 21 this 9sept | aroace but kind of androsexual? (still questioning) | fr + eng
+Turning 21 this 9 sept | aroace (androsexual?) | fr + eng
+We are a digital artist, character designer and writer. Our art trades are always open and if you want to commission us, you can do so on our Ko-Fi page.
 </details>
 
 <div align="center">
