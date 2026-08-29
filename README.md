@@ -1,5 +1,7 @@
+ʟᴀꜱᴛ ᴘᴀɢᴇ ᴜᴘᴅᴀᴛᴇ: 29ᴛʜ ᴀᴜɢ 2ᴏ26 ✦ ᴘʀᴇᴠɪᴏᴜꜱ ᴜꜱᴇʀɴᴀᴍᴇ: @/ᴜɴᴅᴇᴠᴏᴛᴇᴅᴍɪᴋᴀᴇ
+
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=YOUR-GITHUB-USERNAME&label=𑄝&color=323D46&style=for-the-badge" alt="𑄝">
+  <img src="https://komarev.com/ghpvc/?username=undevotedmikae&label=𑄝&color=323D46&style=for-the-badge" alt="𑄝">
 </p>
 
 <p align="center">
@@ -11,7 +13,10 @@
 <details>
 <summary>✦ Abσυƚ υs</summary>
 
-Turning 21 this 9 sept . . . aroace (androsexual?) . . . fr + eng . . . We are a digital artist, character designer and writer. Our art trades are always open and if you want to commission us, you can do so on our [Ko-Fi page.](https://ko-fi.com/devotedmikae)
+
+Turning 21 this 9 sept . . . aroace (androsexual?) . . . fr + eng
+
+We are a digital artist, character designer and writer. Our art trades are always open and if you want to commission us, you can do so on our [Ko-Fi page.](https://ko-fi.com/devotedmikae)
 </details>
 
 <div align="center">
@@ -109,3 +114,20 @@ Things that have chromatic, holographic, iridescent and rainbow effects.
 
 </div>
 
+<div align="center">
+
+<details>
+<summary>✦ εxƭrα</summary>
+
+Just a random note, but if you have any songs similar to those listed, please DM them to us!!!
+
+"Those who can't, cheat" by Clarence Clarity
+
+"Concertina Ballerina" by Alternative Radio
+
+"RUBBERZ" By Fenix Flexin
+
+"Loser" by Tame Impala
+
+"Die by numbers" By Ashbury heights.
+</details>
