@@ -42,9 +42,11 @@ Do not copy or take inspiration of our cosplays, especially not our OCs. It'll b
 
 We are not severe with our DNIs, so please respect the very few ones we enforce, Do Not Interact if:
 
-✦ You’re bigoted (racists, homophobes / transphobes, fatphobic, religiophobic etc…)
-✦ You’re problematic (support inc3st, gr00ming, non-con etc…), also want to add that if you are a fan of TCOAAL then don't approach us.
-✦ You have a bad reputation: We don't want to hear it. If everyone considers you a bad person then you must have done something bad for them to hate you.
+1 ✦ You’re bigoted (racists, homophobes / transphobes, fatphobic, religiophobic etc…)
+
+2 ✦ You’re problematic (support inc3st, gr00ming, non-con etc…), also want to add that if you are a fan of TCOAAL then don't approach us.
+
+3 ✦ You have a bad reputation: We don't want to hear it. If everyone considers you a bad person then you must have done something bad for them to hate you.
 
 </details>
 
