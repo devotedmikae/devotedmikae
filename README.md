@@ -5,6 +5,17 @@
 <div align="center">
 
 <details>
+<summary>✦ Bҽfσɾҽ ყσυ inƚҽɾαcƚ</summary>
+
+1 ✦ We are EXTREMELY cynical.
+
+</details>
+
+</div>
+
+<div align="center">
+
+<details>
 <summary>✦ Abσυƚ Pσnყƚσɯn</summary>
 
 Feel free to cuddle, hug, boop, kiss and sit next / behind us even if we are with a friend or afk! When afk, you can whisper to interact (w2i) and we usually answer very fast unless our pony’s name says “sleeping / asleep / at work”.
