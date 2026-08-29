@@ -48,6 +48,8 @@ We are not severe with our DNIs, so please respect the very few ones we enforce,
 
 3 ✦ You have a bad reputation: We don't want to hear it. If everyone considers you a bad person then you must have done something bad for them to hate you and earning such a profile.
 
+4 ✦ This one is personal but please DNI if you're constantly negative. We are EXTREMELY depressed and need positive interactions. If all you do is complain and cry, you're gonna take us down with you. We are trying very hard to heal ourselves, so please consider that. We know everyone have their own problems but we can't carry others anymore.
+
 </details>
 
 </div>
