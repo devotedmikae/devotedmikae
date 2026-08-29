@@ -1,4 +1,8 @@
 <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=YOUR-GITHUB-USERNAME&label=𑄝&color=FDFFB2&style=for-the-badge" alt="𑄝">
+</p>
+
+<p align="center">
   <img src="https://64.media.tumblr.com/631ae625cda7ddea8536118571664a95/3ea6db46b2fb5676-53/s2048x3072/18241b8c7743a2176d72aa3776beee294d0e736c.pnj" alt="Image">
 </p>
 
