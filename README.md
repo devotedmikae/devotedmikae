@@ -13,7 +13,7 @@ $\color{#8C9581}{\textsf{(Click the arrows to read)}}$
 <div align="center">
 <details>
 <summary>SᕼOᖇT ᗪESᑕᖇIᑭTIOᑎ</summary>
-This is a story about Cuphead and Mugman now grown up. As Elder Kettle passed away, they went back to his old cottage to gather his belongings as they have to sell the house. While packing boxes, Cuphead finds a strange object. Despite his brother's warnings, he still interacted with it. This led to something unexpected... Will the cupbros stay united for this?
+This is a story about Cuphead and Mugman now grown up. As Elder Kettle passed away, they went back to his old cottage to gather his belongings to be able to sell the house. While packing boxes, Cuphead finds a strange object. Despite his brother's warnings, he still interacted with it. This led to something unexpected... Will the cupbros stay united for this?
 </details>
 
 <div align="center">
