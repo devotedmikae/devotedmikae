@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=devotedmikae&label=Readers&color=C67F50&style=for-the-badge" alt="Profile views">
+  <img src="https://komarev.com/ghpvc/?username=devotedmikae&label=Readers&color=F7EFCB&style=for-the-badge" alt="Profile views">
 </p>
 
 <p align="center">
