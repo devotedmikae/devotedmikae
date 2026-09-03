@@ -7,7 +7,7 @@ $\color{#C67F50}{\textsf{ᑕᑌᑭᕼEᗩᗪ: }}$ $\color{#F1E6B4}{\textsf{ᗷ�
 </p>
 
 <p align="center">
-(Click the arrows to read).
+$\color{#8C9581}{\textsf{(Click the arrows to read}}$
 </p>
 
 <div align="center">
