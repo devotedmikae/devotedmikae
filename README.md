@@ -26,7 +26,7 @@ I started this project back in 2018. The thing was that at the time I did not sp
 <div align="center">
 <details>
 <summary>IᗰᑭOᖇTᗩᑎT!!!</summary>
-It'll sound like a sad fact, but I am working on this comic again after years because I have been revisiting my old art and thoughts from 2018. I currently have a huge art block and lack of motivation. Working on this comic lifted my mood and kind of helped me get past my limits! Even though I still do not like my art, I think that I now at least have a decent one to be posting a comic. So I want to warn in advance that I may struggle to keep up with posting, but will try my best to finish the story for the ones who are actually invested in my project. 
+I am working on this comic again after years because I have been revisiting my old art and thoughts from 2018. I currently have a huge art block and lack of motivation but working on this comic lifted my mood and kind of helped me get past my limits! Even though I still do not like my art, I think that I now at least have a decent one to be posting a comic with. So I want to warn in advance that I may struggle to keep up with posting, but will try my best to finish the story for the ones who are actually invested in my project. 
 
 If one day I actually don't finish drawing the comic, I will still write it down for those who want the ending. You could draw the rest if you want to, I don't mind, but at the moment that's my job LMAO!
 </details>
