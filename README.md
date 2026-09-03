@@ -35,6 +35,6 @@ I am working on this comic again after years because I have been revisiting my o
 If one day I actually don't finish drawing the comic, I will still write it down for those who want the ending. You could draw the rest if you want to, I don't mind, but at the moment that's my job LMAO!
 </details>
 
-$\color{#8C9581}{\textsf{Creator of the comic: @devotedmikae across all platforms.}}$
 
+$\color{#8C9581}{\textsf{Creator of the comic: @devotedmikae across all platforms.}}$
 $\color{#8C9581}{\textsf{By the way, if this actually becomes popular I might make a Discord server. We'll see, toodles!}}$
