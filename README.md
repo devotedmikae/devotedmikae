@@ -43,7 +43,7 @@ If one day I actually don't finish drawing the comic, I will still write it down
 <div align="center">
 <details>
 <summary>ᗩᗷOᑌT ᗰY ᗩᖇT</summary>
-As I am a very small artist that is unknown it means that my DMs are not overflowing, my art trades are open as well as my commissions on <a href="https://ko-fi.com/devotedmikae/commissions">Ko-fi page.</a>
+As I am a very small artist that is unknown it means that my DMs are not overflowing, my art trades are open as well as commissions on my <a href="https://ko-fi.com/devotedmikae/commissions">Ko-fi page.</a>
 </details>
   
 <div align="center">
