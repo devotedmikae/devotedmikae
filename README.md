@@ -6,7 +6,9 @@
 $\color{#C67F50}{\textsf{ᑕᑌᑭᕼEᗩᗪ: }}$ $\color{#F1E6B4}{\textsf{ᗷᗩᑕK TO TᕼᗩT Eᖇᗩ.}}$
 </p>
 
+<p align="center">
 (Click the arrows to read).
+</p>
 
 <div align="center">
 <details>
