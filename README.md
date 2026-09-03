@@ -9,5 +9,5 @@ $\color{#B3806B}{\textsf{ᑕᑌᑭᕼEᗩᗪ: }}$ $\color{#F1E6B4}{\textsf{ᗷ�
 <div align="center">
 <details>
 <summary>ᖇᑌᒪES</summary>
-You are allowed to use my art as a profile picture or banner, make edits or animations and even voice over my comic without asking me as long as there is proper credit. If I draw anonyms doing something in the comic for example hugging one of the cast members, then yes you are allowed to draw your character over the gray mannequin. I don't mindn I find that pretty cute when people add their OCs actually lol.
+You are allowed to use my art as a profile picture or banner, make edits or animations and even voice over my comic without asking me as long as there is proper credit. If I draw anonyms doing something in the comic for example hugging one of the cast members, then yes you are allowed to draw your character over the gray mannequin. I don't mind and find that pretty cute when people add their OCs actually lol.
 </details>
