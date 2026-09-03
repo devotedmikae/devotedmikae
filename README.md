@@ -1,4 +1,4 @@
-ʟᴀꜱᴛ ᴘᴀɢᴇ ᴜᴘᴅᴀᴛᴇ: 29ᴛʜ ᴀᴜɢ 2ᴏ26 ✦ ᴘʀᴇᴠɪᴏᴜꜱ ᴜꜱᴇʀɴᴀᴍᴇ: @/ᴜɴᴅᴇᴠᴏᴛᴇᴅᴍɪᴋᴀᴇ
+ʟᴀꜱᴛ ᴘᴀɢᴇ ᴜᴘᴅᴀᴛᴇ: 29ᴛʜ ᴀᴜɢ 2ᴏ26
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=devotedmikae&label=viewers&color=334A43&style=for-the-badge" alt="viewers">
