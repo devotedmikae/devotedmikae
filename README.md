@@ -49,7 +49,7 @@ As I am a very small artist that is unknown it means that my DMs are not overflo
 <div align="center">
 <details>
 <summary>TO ᑕOᑎTᗩᑕT ᗰE ᖴᗩST</summary>
-  devotedmikae on discord or instagram
+  devotedmikae on discord
 </details>
 
 
