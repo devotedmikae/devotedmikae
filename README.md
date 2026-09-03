@@ -15,10 +15,15 @@ $\color{#8C9581}{\textsf{(Click the arrows to read)}}$
 <summary>ᖇᑌᒪES</summary>
 You are allowed to use my art as a profile picture or banner, make edits or animations and even voice over my comic without asking me as long as there is proper credit. If I draw anonymous viewers doing something in the comic for example hugging one of the cast members, then yes: you are allowed to draw your character over the gray mannequin. I don't mind and find that pretty cute when people add their OCs lol.
 
-
 If I actually become popular and my art becomes recognizable, then you won't require as much as to always credit me if people already know me. Of course in the meantime I am a very small and unknown artist, so credit is required.
 
 Also, my comic is free to interpret however you'd like as long as it is not problematic. Have fun guys.
+</details>
+
+<div align="center">
+<details>
+<summary>ᗩᗷOᑌT ᗰY ᗩᖇT</summary>
+I am still a small artist that doesn't have a lot of work to do, so my art trades are still open as well as my commissions on my <a href="https://ko-fi.com/devotedmikae/commissions">Ko-fi page.</a>
 </details>
 
 <div align="center">
