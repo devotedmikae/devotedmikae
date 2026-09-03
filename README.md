@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-$\color{#B3806B}{\textsf{ᑕᑌᑭᕼEᗩᗪ: }}$ $\color{#F1E6B4}{\textsf{ᗷᗩᑕK TO TᕼᗩT Eᖇᗩ.}}$
+$\color{#C67F50}{\textsf{ᑕᑌᑭᕼEᗩᗪ: }}$ $\color{#F1E6B4}{\textsf{ᗷᗩᑕK TO TᕼᗩT Eᖇᗩ.}}$
 </p>
 
 <div align="center">
@@ -14,7 +14,7 @@ You are allowed to use my art as a profile picture or banner, make edits or anim
 
 If I actually become popular and my art becomes recognizable, then you won't require as much as to always credit me if people already know me. Of course in the meantime I am a very small and unknown artist, so credit is required.
 
-Also, my comic is free to interpret however you'd like as long as it is not problematic. You can interpret things as Bendystraw, make huge theories etc! Have fun guys.
+Also, my comic is free to interpret however you'd like as long as it is not problematic. Have fun guys.
 </details>
 
 <div align="center">
