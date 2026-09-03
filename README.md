@@ -37,4 +37,4 @@ If one day I actually don't finish drawing the comic, I will still write it down
 
 
 $\color{#8C9581}{\textsf{Creator of the comic: @devotedmikae across all platforms.}}$
-$\color{#8C9581}{\textsf{By the way, if this actually becomes popular I might make a Discord server. We'll see, toodles!}}$
+$\color{#8C9581}{\textsf{By the way, if this actually becomes popular I MIGHT make a Discord server. We'll see, toodles!}}$
