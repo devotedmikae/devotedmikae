@@ -23,7 +23,7 @@ Also, my comic is free to interpret however you'd like as long as it is not prob
 <div align="center">
 <details>
 <summary>ᗩᗷOᑌT ᗰY ᗩᖇT</summary>
-As I am a very small artist that is known, it means that my DMs are not overflowing, so my art trades are open as well as my commissions on my <a href="https://ko-fi.com/devotedmikae/commissions">Ko-fi page.</a>
+As I am a very small artist that is known, it means that my DMs are not overflowing, so my art trades are open as well as my commissions on my $\color{#C67F50}{\textsf{<a href="https://ko-fi.com/devotedmikae/commissions">Ko-fi page.</a>}}$
 </details>
 
 <div align="center">
